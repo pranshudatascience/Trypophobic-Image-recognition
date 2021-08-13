@@ -23,7 +23,7 @@ a cluster of eyes
 
 
 
-WARNING: You Might queasy, disgust while looking at theimages below
+WARNING: You Might feel queasy, disgust while looking at theimages below
 
 
 
